@@ -1,4 +1,4 @@
-# Knuspriges Soja-Hähnchen mit Apfel-Sellerie-Salat 🌶️🌶️🌶️
+# ไก่สไตล์โซย่ากรอบพร้อมสลัดแอปเปิ้ลกับคื่นฉ่าย - Knuspriges Soja-Hähnchen mit Apfel-Sellerie-Salat 🌶️🌶️🌶️
 
 ## Zutaten
 - Säuerliche Äpfel (z.B. Granny Smith), in dünne Scheiben geschnitten
