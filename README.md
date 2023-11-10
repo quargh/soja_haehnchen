@@ -1,4 +1,4 @@
-# Gai style soya krop prom salad apple gap khuen chai - Knuspriges Soja-Hähnchen mit Apfel-Sellerie-Salat 🌶️🌶️🌶️
+# Gai style soya krop prom salad apple gap khuen chai (Knuspriges Soja-Hähnchen mit Apfel-Sellerie-Salat) 🌶️🌶️🌶️
 
 ## Zutaten
 - Säuerliche Äpfel (z.B. Granny Smith), in dünne Scheiben geschnitten
